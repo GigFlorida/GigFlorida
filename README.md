@@ -8,7 +8,7 @@
 - Developer and Code Custodian Bank buster
 
 ---
-### Corporations, Businesses, Production, Publications, Organizations
+### Corporations | Businesses | Production | Publications | Organizations
 - Island Girl Islamorada (Luxury Yacht for Private Charter) 
 - The Southernmost Consultant
 - Exocoetidae Full Stack Development and Analytica
