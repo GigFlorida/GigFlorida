@@ -35,9 +35,9 @@ Here are some weird ideas to ask about, get any conversation started:
 
 ---
 🤔 I’m looking for help with: 
-- help is needed with many things happening, all the time it seems, ...absolutely everything from, 
-- "Way Way Easy," through to, 
-- "Oh My Gosh, You Want To What Now!?!"
+
+Help is needed with many things; happening all the time it seems!!! 
+Absolutely everything from; "Way Way Easy," through to; "Oh My Gosh, You Want To What Now!?!"
 
 ---
 💬 Ask me about: 
