@@ -1,29 +1,16 @@
 ---
 # Kurt David Gooch
-### "Kurt," "K. D." "K. David" "Keys Kurt" "Key West Kurt" "Gooch" "Gig Florida Gooch"
+### "Kurt" "K.D." "K. David" "Keys Kurt" "Key West Kurt" "Gooch" "GigFlorida Gooch"
 
-- Just Turned 50 Years Old on 9/25/2021 @ 9:00 am
-- Florida Statewide 🎭Performing Artist, Musician on 🎹Keys/Synths, 
-- Old School SysOp, Systems Integration Engineering 
-- Streaming Data | Event-Based Automation Designer in Pub/Sub Kafka
-- AI/ML of Computer Assisted Operations 
-- 👨🏽‍💻Full Stack Developer for all the Juicy Eye Candy
-- 🏦FinTech, Financial Technology 
-- 🧑🏽‍💻OSINT Security Hardening and Penetration Testing 
-- Version Control in Volumes | "Crazy Code of Chaos" Git Custodian
+---
+Just Turned 50 Years Old on 9/25/2021 @ 9:00 am; Florida Statewide 🎭Performing Artist, Musician on 🎹Keys/Synths; Old School SysOp, Systems Integration Engineering; Streaming Data | Event-Based Automation Designer in Pub/Sub Kafka; AI/ML of Computer Assisted Operations; 👨🏽‍💻Full Stack Developer for all the Juicy Eye Candy; 🏦FinTech, Financial Technology; 🧑🏽‍💻OSINT Security Hardening and Penetration Testing; Version Control in Volumes | "Crazy Code of Chaos" Git Custodian
 
 ---
 ## CEO, CTO, CIO, COO, and VP 
 ### Corporations, Businesses, Production, Publications, and Organizations
-- Island Girl Islamorada, Luxury Yacht for Private Charter 
-- Kurt David Gooch, The Southernmost Consultant
-- Toxic Triangle; Exocœtidæ; Tidæ; Full Stack Development and Analytic
-- Flying Fish Production, Stage and Studio
-- Tobiko Tropicale UI/UX/Graphix
-- The GigFlorida Networks and Miniservices
-- Professional Musician Entertainment Industry Magazine 
-- "The Scholarly Road," Touring Journal 
-- The Creative Loafing Gazetteer, Classifieds
+
+---
+Island Girl Islamorada, Luxury Yacht for Private Charter; Kurt David Gooch, The Southernmost Consultant; Toxic Triangle; Exocœtidæ; Tidæ; Full Stack Development and Analytic; Flying Fish Production, Stage and Studio; Tobiko Tropicale UI/UX/Graphix; The GigFlorida Networks and Miniservices; Professional Musician Entertainment Industry Magazine; "The Scholarly Road," Touring Journal; The Creative Loafing Gazetteer, Classifieds; 
 
 ---
 ### **GigFlorida/GigFlorida** Welcome Page
