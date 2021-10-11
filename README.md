@@ -1,9 +1,16 @@
 ---
-#  🕴🏽Kurt David Gooch🕴🏽 
+# Kurt David Gooch
 ### "Kurt," "K. D." "K. David" "Keys Kurt" "Key West Kurt" "Gooch" "Gig Florida Gooch"
-- Florida Statewide 🎭 Performing Artist, Musician on 🎹 Keys/Synths, 
-- Old School SysOp, Systems Integration Engineering and Director/Designer of Computer Assisted Operations 
-- 👨🏽‍💻 Full Stack Developer | 🏦 FinTech, Financial Technology | 🧑🏽‍💻 OSINT "Crazy Code of Chaos" Git Custodian
+
+- Just Turned 50 Years Old on 9/25/2021 @ 9:00 am
+- Florida Statewide 🎭Performing Artist, Musician on 🎹Keys/Synths, 
+- Old School SysOp, Systems Integration Engineering 
+- Streaming Data | Event-Based Automation Designer in Pub/Sub Kafka
+- AI/ML of Computer Assisted Operations 
+- 👨🏽‍💻Full Stack Developer for all the Juicy Eye Candy
+- 🏦FinTech, Financial Technology 
+- 🧑🏽‍💻OSINT Security Hardening and Penetration Testing 
+- Version Control in Volumes | "Crazy Code of Chaos" Git Custodian
 
 ---
 ## CEO, CTO, CIO, COO, and VP 
@@ -51,229 +58,28 @@ Here are some weird ideas to ask about, get any conversation started:
 
 ---
 📫 How to reach me: 
-📇 Addresses:
-- 90311 Old Highway, Tavernier, Florida  33070
-- Duval Street, Key West, Florida  33040
-📱 Phones:
-- (305) 731-5921
-- (305) 834-2183
-- (813) 852-KURT (5878)
-📧 ䷃䷄䷅䷆䷇EMails:
-- GigFlorida@aol.com, 
-- GigFlorida@live.com, 
-- GigFlorida@gmail.com, 
-- GigFlorida@me.com, 
-- GigFlorida@yahoo.com, 
+
+📇 Addresses; 90311 Old Highway, Tavernier, Florida  33070; Duval Street, Key West, Florida  33040; 
+
+📱 Phones; (305) 731-5921; (305) 834-2183; (813) 852-KURT (5878); 
+
+📧 EMails; GigFlorida@aol.com; GigFlorida@gmail.com; GigFlorida@live.com; GigFlorida@me.com; GigFlorida@yahoo.com; 
 
 ---
 😄 Pronouns: 
-- Owner, Social and Corporate Responsibility 
-- SysOp, System Designer, Integrator, and Operator
-- Musician, On-Stage Professional Piano, Organ, and Synth
-- Consultant, Start-Up, Event, food, music, BI, Analytics
+
+- Owner, Social and Corporate Responsibility; SysOp, System Designer, Integrator, and Operator; Musician, On-Stage Professional Piano, Organ, and Synth; Consultant, Start-Up, Event, food, music, BI, Analytics; 
+
+- I Ching | Each of the eight (8) TriGrams represent one of the Eight(8) Basic Forces of Nature.   One(1) Heaven, the Creative; Two(2) Lake, the Joyous; Three(3) Fire, the Clinging; Four(4) Thunder, the Arousing; Five(5) Wind, the Gentle; Six(6) Water, the Abysmal; Seven(7) Mountain, Keeping Still; Eight(8) Earth, the Receptive;
+
+- I Ching | 64 Hexagrams of adding Change to your life:   1 Creative; 2 Receptive; 3 Difficulty; 4 Folly; 5 Waiting; 6 Conflict; 7 Army; 8 Union; 9 Taming; | 10 Treading; 11 Peace; 12 Standstill; 13 Fellowship; 14 Possession; 15 Modesty; 16 Enthusiasm; 17 Following; 18 Decay; 19 Approach; | 20 View; 21 Biting; 22 Grace; 23 Splitting; 24 Return; 25 Innocence; 26 Taming; 27 Mouth; 28 Preponderance; 29 Abysmal; | 30 Clinging; 31 Influence; 32 Duration; 33 Retreat; 34 Power; 35 Progress; 36 Darkening; 37 Family; 38 Opposition; 39 Obstruction; | Forty(40) Deliverance; Forty-One(41) Decrease; Forty-Two(42) Increase; Forty-Three(43) Resoluteness; Forty-Four(44) Coming; Forty-Five(45) Gathering; Forty-Six(46) Pushing; Forty-Seven(47) Oppression; Forty-Eight(48) Well; Forty-Nine(49) Revolution; | Fifty(50) Caldron; Fifty-One(51) Arousing; Fifty-Two(52) Still; Fifty-Three(53) Development; Fifty-Four(54) Marrying; Fifty-Five(55) Abundance; Fifty-Six(56) Wanderer; Fifty-Seven(57) Gentle; Fifty-Eight(58) Joyous; Fifty-Nine(59) Dispersion; | Sixty(60) Limitation; Sixty-One(61) Truth; Sixty-Two(62) Small; Sixty-Three(63) After; Sixty-Four(64) Before
 
 ---
 👨🏽‍⚖️ Four Rules: 
-- They are Very Simple, 
-- ...No Lying!!!
-- ...No Cheating!!!
-- ...No Stealing!!!
-- ...No Infrenging on any one eles rights, What-So-Ever, (et al) at all!!!
+- They are Very Simple; No Lying; No Cheating; No Stealing; No Infrenging on any one eles rights, What-So-Ever, (et al) at all!!!
 
 ---
 ⚡ Fun fact: 
-- "Florida Man," ...does crazy stuff!!!
+- "Florida Man," ...does crazy stuff!!! ...just sayin'
 
 ---
-I Ching Hexagram 1
-1
-Creative
-I Ching Hexagram 2
-2
-Receptive
-I Ching Hexagram 3
-3
-Difficulty
-I Ching Hexagram 4
-4
-Folly
-I Ching Hexagram 5
-5
-Waiting
-I Ching Hexagram 6
-6
-Conflict
-I Ching Hexagram 7
-7
-Army
-I Ching Hexagram 8
-8
-Union
-I Ching Hexagram 9
-9
-Taming
-I Ching Hexagram 10
-10
-Treading
-I Ching Hexagram 11
-11
-Peace
-I Ching Hexagram 12
-12
-Standstill
-I Ching Hexagram 13
-13
-Fellowship
-I Ching Hexagram 14
-14
-Possession
-I Ching Hexagram 15
-15
-Modesty
-I Ching Hexagram 16
-16
-Enthusiasm
-I Ching Hexagram 17
-17
-Following
-I Ching Hexagram 18
-18
-Decay
-I Ching Hexagram 19
-19
-Approach
-I Ching Hexagram 20
-20
-View
-I Ching Hexagram 21
-21
-Biting
-I Ching Hexagram 22
-22
-Grace
-I Ching Hexagram 23
-23
-Splitting
-I Ching Hexagram 24
-24
-Return
-I Ching Hexagram 25
-25
-Innocence
-I Ching Hexagram 26
-26
-Taming
-I Ching Hexagram 27
-27
-Mouth
-I Ching Hexagram 28
-28
-Preponderance
-I Ching Hexagram 29
-29
-Abysmal
-I Ching Hexagram 30
-30
-Clinging
-I Ching Hexagram 31
-31
-Influence
-I Ching Hexagram 32
-32
-Duration
-I Ching Hexagram 33
-33
-Retreat
-I Ching Hexagram 34
-34
-Power
-I Ching Hexagram 35
-35
-Progress
-I Ching Hexagram 36
-36
-Darkening
-I Ching Hexagram 37
-37
-Family
-I Ching Hexagram 38
-38
-Opposition
-I Ching Hexagram 39
-39
-Obstruction
-I Ching Hexagram 40
-40
-Deliverance
-I Ching Hexagram 41
-41
-Decrease
-I Ching Hexagram 42
-42
-Increase
-I Ching Hexagram 43
-43
-Resoluteness
-I Ching Hexagram 44
-44
-Coming
-I Ching Hexagram 45
-45
-Gathering
-I Ching Hexagram 46
-46
-Pushing
-I Ching Hexagram 47
-47
-Oppression
-I Ching Hexagram 48
-48
-Well
-I Ching Hexagram 49
-49
-Revolution
-I Ching Hexagram 50
-50
-Caldron
-I Ching Hexagram 51
-51
-Arousing
-I Ching Hexagram 52
-52
-Still
-I Ching Hexagram 53
-53
-Development
-I Ching Hexagram 54
-54
-Marrying
-I Ching Hexagram 55
-55
-Abundance
-I Ching Hexagram 56
-56
-Wanderer
-I Ching Hexagram 57
-57
-Gentle
-I Ching Hexagram 58
-58
-Joyous
-I Ching Hexagram 59
-59
-Dispersion
-I Ching Hexagram 60
-60
-Limitation
-I Ching Hexagram 61
-61
-Truth
-I Ching Hexagram 62
-62
-Small
-I Ching Hexagram 63
-63
-After
-I Ching Hexagram 64
-64
-Before
