@@ -1,5 +1,5 @@
 ---
-# Kurt David Gooch
+# Kurt David Gooch is perfecting Markdown 3.0
 ### "Kurt" "K.D." "K. David" "Keys Kurt" "Key West Kurt" "Gooch" "GigFlorida Gooch"
 
 ---
