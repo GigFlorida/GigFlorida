@@ -1,5 +1,6 @@
 ---
-# Kurt David Gooch is perfecting Markdown 3.0
+# Kurt David Gooch
+is perfecting his GitHub-MarkDown 3.1 SuperSkills
 ### "Kurt" "K.D." "K. David" "Keys Kurt" "Key West Kurt" "Gooch" "GigFlorida Gooch"
 
 ---
