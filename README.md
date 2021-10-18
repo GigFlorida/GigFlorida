@@ -1,5 +1,5 @@
 # I have Got To Re-Build Everything here, 
-## My full experiences, in a very full computational; 
+## My full experiences, in a very full computational history; 
 ### Past, Present, and Future ...like right now!!!
 ---
 # Kurt David Gooch
@@ -7,7 +7,15 @@ is perfecting his GitHub Flavored (GFM) MarkDown 3.? - SuperSkills
 ### "Kurt" "K.D." "K. David" "Keys Kurt" "Key West Kurt" "Gooch" "GigFlorida Gooch"
 
 ---
-Just Turned 50 Years Old on 9/25/2021 @ 9:00 am; Florida Statewide 🎭Performing Artist, Musician on 🎹Keys/Synths; Old School SysOp, Systems Integration Engineering; Streaming Data | Event-Based Automation Designer in Pub/Sub Kafka; AI/ML of Computer Assisted Operations; 👨🏽‍💻Full Stack Developer for all the Juicy Eye Candy; 🏦FinTech, Financial Technology; 🧑🏽‍💻OSINT Security Hardening and Penetration Testing; Version Control in Volumes | "Crazy Code of Chaos" Git Custodian
+- Just Turned 50 Years Old on 9/25/2021 @ 9:00 am; 
+- Florida Statewide 🎭Performing Artist, Musician on 🎹Keys/Synths; 
+- Old School SysOp, Systems Integration Engineering; 
+- Streaming Data | Event-Based Automation Designer in Pub/Sub Kafka; 
+- AI/ML of Computer Assisted Operations; 
+- 👨🏽‍💻Full Stack Developer for all the Juicy Eye Candy; 
+- 🏦FinTech, Financial Technology; 
+- 🧑🏽‍💻OSINT Security Hardening and Penetration Testing; 
+- Version Control in Volumes | "Crazy Code of Chaos" Git Custodian
 
 ---
 ## CEO, CTO, CIO, COO, and VP 
