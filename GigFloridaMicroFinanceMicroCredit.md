@@ -34,7 +34,7 @@ Welcome to μCredit™|MicroCredit™ and μFinance™|MicroFinance™info.com w
 
 ### Support μCredit™|MicroCredit™ and μFinance™|MicroFinance™ Information
 ---
-Thank you for visiting μCredit™|MicroCredit™ and μFinance™|MicroFinance™Info.com, reading our articles, and following the blog about μCredit™|MicroCredit™ and μFinance™|MicroFinance™. This website started as a project in the university when I studied in Germany and is now a big source of information over μCredit™|MicroCredit™ and μFinance™|MicroFinance™ with many visitors from all around the world. It´s quite obvious, μCredit™|MicroCredit™ and μFinance™|MicroFinance™ is something that brings the world together to cooperate for a better and sustainable future. There are so many people needing financing to get up on their feet and start their own lives, especially now in Haiti after the catastrophic earthquake, and still, there´s such a big lack of credit possibilities.
+Thank you for visiting μCredit™|MicroCredit™ and μFinance™|MicroFinance™ Info.com, reading our articles, and following the blog about μCredit™|MicroCredit™ and μFinance™|MicroFinance™. This website started as a project in the university when I studied in Germany and is now a big source of information over μCredit™|MicroCredit™ and μFinance™|MicroFinance™ with many visitors from all around the world. It´s quite obvious, μCredit™|MicroCredit™ and μFinance™|MicroFinance™ is something that brings the world together to cooperate for a better and sustainable future. There are so many people needing financing to get up on their feet and start their own lives, especially now in Haiti after the catastrophic earthquake, and still, there´s such a big lack of credit possibilities.
 
 That´s why it´s so important that you support μCredit™|MicroCredit™ and μFinance™|MicroFinance™info.com to help us spread the word, and it does not cost you a thing. You can give your support in several ways. The easiest way is by becoming a fan of our Facebook page or following our Twitter page. You can also add a small link logo on your site if you have one that is.
 
@@ -47,20 +47,27 @@ That´s why it´s so important that you support μCredit™|MicroCredit™ and �
 
 “μCredit™|MicroCredit™ and μFinance™|MicroFinance™ is based on the premise that the financially disadvantaged have skills that remain unutilized or underutilized. It is not the lack of skills that makes financially disadvantaged people financially disadvantaged….charity is not the answer to poverty. It only helps poverty to continue. It creates dependency and takes away the individual’s initiative to break through the wall of poverty. Unleashing of energy and creativity in each human being is the answer to poverty.” (Muhammad Yunus, Expanding MicroCredit Outreach to Reach the Millennium Development Goals, International Seminar on Attacking Poverty with MicroCredit, Dhaka, Bangladesh, January 2003)
 
-μCredit™|MicroCredit™ and μFinance™|MicroFinance™ belongs to the group of financial service innovations under the term of μCredit™|MicroCredit™ and μFinance™|MicroFinance™, other services according to μCredit™|MicroCredit™ and μFinance™|MicroFinance™ are μSave™|MicroSave™ | μSaving™|MicroSaving™, Money Transfer Vehicles, and μInsurance™|MicroInsurance™. μCredit™|MicroCredit™ and μFinance™|MicroFinance™ is an innovation for developing countries. 
+μCredit™|MicroCredit™ and μFinance™|MicroFinance™ belongs to the group of financial service innovations under the term of μCredit™|MicroCredit™, other services according to μCredit™|MicroCredit™ and μFinance™|MicroFinance™ are μSave™|MicroSave™ | μSaving™|MicroSaving™, Other Money Transfer Vehicles, and μInsurance™|MicroInsurance™. Also, μCredit™|MicroCredit™ and μFinance™|MicroFinance™ are an innovation for developing countries. 
 
-μCredit™|MicroCredit™ and μFinance™|MicroFinance™ is a service for: 
-- Financially disadvantaged Individuals, that are unemployed. 
-- Entrepreneurs, or farmers who are not bankable. 
-The reason why they are not bankable is the lack of collateral, steady employment, income, and verifiable credit history, because of these reasons they can't even meet the minimal qualifications for ordinary credit. 
+μCredit™|MicroCredit™ and μFinance™|MicroFinance™ is a service for:
+- Financially Financially Disadvantaged Individuals, that are unemployed
+- Entrepreneurs, or (e.g. Farmers who are Not Bankable or NonBankable
 
-By helping people with μCredit™|MicroCredit™ and μFinance™|MicroFinance™ it gives them more available choices and opportunities with reduced risk. It has successfully enabled financially disadvantaged people to start their own business generating or sustaining an income and often begin to build up wealth and exit poverty. The amount of money that´is loaned out seldom exceeds USD $1000.00 ($25-$50-$75-$100-$125-$150-$175-$200-$500-$750-$999-)
+The reason why they are not bankable is:
+- the lack of collateral
+- steady employment
+- income
+- verifiable credit history
+because of these reasons they can't even meet the minimal qualifications for ordinary credit. 
+
+By helping everyone with μCredit™|MicroCredit™ and μFinance™|MicroFinance™ it gives them more available choices and opportunities with reduced risk. It has successfully enabled financially disadvantaged people to start their own business generating or sustaining an income and often begin to build up wealth and exit poverty. The amount of money that is loaned out seldom exceeds USD $100.00-$1000.00 ($25-$50-$75-$100-$125-$150-$175-$200-$500-$750-$1000 and upwards)
 
 μCredit™|MicroCredit™ and μFinance™|MicroFinance™ fits best to those with entrepreneurial capability and possibility. This translates to those financially disadvantaged who work in growing economies, and who can undertake activities that generate weekly stable incomes. For those who don't qualify because they are extremely financially disadvantaged like destitute and homeless almost every μCredit™|MicroCredit™ and μFinance™|MicroFinance™ institution has special safety programs that offer basic subsistence and later endeavors to graduate these members in their μCredit™|MicroCredit™ and μFinance™|MicroFinance™ program making ordinary μCredit™|MicroCredit™ and μFinance™|MicroFinance™ available.
 
-μCredit™|MicroCredit™ and μFinance™|MicroFinance™ plays an important role in fighting the multi-dimensional aspects of poverty. 
-μCredit™|MicroCredit™ and μFinance™|MicroFinance™ increases household income, which leads to attendant benefits such as increased food security, the building of assets, and an increased likelihood of educating oneself and/or children. 
-μCredit™|MicroCredit™ and μFinance™|MicroFinance™ is also a means for self-empowerment. It enables the financially disadvantaged to make changes when they increase income, become business owners and reduce their vulnerability to external shocks like illness, weather, and more.
+- μCredit™|MicroCredit™ and μFinance™|MicroFinance™ plays an important role in fighting the multi-dimensional aspects of poverty.
+- μCredit™|MicroCredit™ and μFinance™|MicroFinance™ increases household income, which leads to attendant benefits such as increased food security, the building of assets, and an increased likelihood of educating oneself and/or children. 
+- μCredit™|MicroCredit™ and μFinance™|MicroFinance™ is also a means for self-empowerment. 
+- It enables the financially disadvantaged to make changes when they increase income, become business owners and reduce their vulnerability to external shocks like illness, weather, and all other things that might incurr extra unforseen expenses.
 
 μCredit™|MicroCredit™ and μFinance™|MicroFinance™ has widely been directed by the non-profit sector while commercial lenders require more conventional forms of collateral before making loans to μCredit™|MicroCredit™ and μFinance™|MicroFinance™ institutions. But now it´s successfully growing bigger and getting more credibility in the traditional finance world. Due to that, the traditional banking industry has begun to realize that these borrowers fit more correctly in a category called pre-bankable. The industry has realized that those who lack access to traditional formal financial institutions require and desire a variety of financial products. Nowadays the mainstream finance industry is counting the μCredit™|MicroCredit™ and μFinance™|MicroFinance™ projects as a source of growth. Before almost everyone were neglecting the success of μCredit™|MicroCredit™ and μFinance™|MicroFinance™ at the beginning of the 1970s when pilot projects such as ACCION were released until the United Nations declared 2005 the International Year of μCredit™|MicroCredit™ and μFinance™|MicroFinance™.
 
@@ -140,28 +147,36 @@ Poverty is the main cause of concern in improving the economic status of develop
 A great scale of organizations is regarded as μCredit™|MicroCredit™ and μFinance™|MicroFinance™ institutes. They are those that offer credits and other financial services to the representatives of financially disadvantaged strata of the population (except for extremely financially disadvantaged strata).
 
 - μCredit™|MicroCredit™ and μFinance™|MicroFinance™ is increasingly being considered as one of the most effective tools of reducing poverty by enabling 
-- μCredit™|MicroCredit™ to the Financially Disadvantaged. 
+- μCredit™|MicroCredit™ to the Financially Disadvantaged.
 - μCredit™|MicroCredit™ and μFinance™|MicroFinance™ has a significant role in bridging the gap between formal financial institutions and the rural financially disadvantaged.
 - μCredit™|MicroCredit™ and μFinance™|MicroFinance™ Institutions (MFIs) accesses financial resources from the Banks and other mainstream Financial Institutions and provide financially and support services to the financially disadvantaged.
 
 MFIs are the pivotal overseas organizations in each country that make individual μCredit™|MicroCredit™ and μFinance™|MicroFinance™ loans directly to: 
-- villagers, 
-- microentrepreneurs, 
-- impoverished women, and 
-- financially disadvantaged families. 
+- villagers
+- microentrepreneurs
+- impoverished women
+- financially disadvantaged families
 
 An overseas MFI is like a small bank with the same challenges and capital needs confronting any expanding small venture but with the added responsibility of serving economically marginalized populations. Many MFIs are creditworthy and well-run with proven records of success, many are operationally self-sufficient.
 
 Various types of institutions offer μCredit™|MicroCredit™ and μFinance™|MicroFinance™: 
-- credit unions, 
-- commercial banks, 
-- NGOs (Non-governmental Organizations), 
-- cooperatives, and 
-- sectors of government banks. 
+- credit unions
+- commercial banks
+- Non-governmental Organizations (NGO)
+- cooperatives
+- sectors of government banks
 
-The emergence of “for-profit” MFIs is growing. In India, these ‘for-profit’ MFIs are referred to as Non-Banking Financial Companies (NBFC). NGOs mainly work in remote rural areas thereby providing financial services to people with no access to banking services.
+The emergence of “for-profit” MFIs is growing. In the United Staes of America (USA), in Miami, Florida, BitCoin/MiamiCoin Technology Centers
+In India, these ‘for-profit’ MFIs are referred to as Non-Banking Financial Companies (NBFC). 
+(NGO)'s mainly work in remote rural areas thereby providing financial services to people with no access to banking services.
 
-The term “transformation,” or commercialization, of a μCredit™|MicroCredit™ and μFinance™|MicroFinance™ institution (MFI), refers to a change in legal status from an unregulated nonprofit or non-governmental organization (NGO) into a regulated, for-profit institution. Regulated, transformed organizations differ from nonprofits in that they are held to performance and capital adequacy standards and are supervised by a financial authority, typically the central bank of the country where they are registered. A transformed MFI also attracts equity investors. The equity investors want to ensure that the values of their investments are maintained or enhanced and elect Board members who share a common vision for the new for-profit institution. Among transformed MFIs, varying classifications of regulated institutions exist, the strictest being banks — rural banks and thrift banks — followed by non-bank financial institutions. Different countries have varied names for these regulated MFIs.
+The terms “Transformation,” or "Commercialization" of a μFinance™|MicroFinance™ institution (MFI), using the μCredit™|MicroCredit™ format for deserving clients, refers to a change in legal status from an "Unregulated Nonprofit (501(c)3)" or "Non-Governmental Organization (NGO)" into a regulated, for-profit institution. Regulated, Transformed Organizations differ from nonprofits in that they are held to performance and capital adequacy standards and are supervised by a financial authority, typically the Central Bank of the country where they are registered. 
+
+A transformed MFI also attracts equity investors. The equity investors want to ensure that the values of their investments are maintained or enhanced and elect Board members who share a common vision for the new for-profit institution. Among transformed MFIs, varying classifications of regulated institutions exist, the strictest being:
+- banks
+- rural banks and thrift banks
+- followed by non-bank financial institution and/or Company (NBFC). 
+Internationally, different countries have varied names for these regulated MFIs.
 
 The μCredit™|MicroCredit™ and μFinance™|MicroFinance™ sector consistently focuses on understanding the needs of the financially disadvantaged and on devising better ways of delivering services in line with their requirements, developing the most efficient and effective mechanisms to deliver finance to the financially disadvantaged. Continuous efforts towards automation of operations are steadily improving inefficiency. The automated systems have also helped accelerate the growth rate of the μCredit™|MicroCredit™ and μFinance™|MicroFinance™ sector.
 
@@ -170,10 +185,10 @@ The μCredit™|MicroCredit™ and μFinance™|MicroFinance™ sector consisten
 To improve the quality of life of the financially disadvantaged by providing access to financial and support services;
 
 To be a viable financial institution developing sustainable communities;
-To mobilize resources to provide both, financial and support services to the financially disadvantaged, particularly women, for viable productive income generation enterprises enabling them to reduce their poverty;
-Learn and evaluate what helps people to move out of poverty faster;
-To create opportunities for self-employment for the underprivileged;
-To train rural financially disadvantaged in simple skills and enable them to utilize the available resources and contribute to employment and income generation in rural areas.
+- To mobilize resources to provide both, Financial and/or Support Services to the financially disadvantaged client, particularly women, for viable productive income generation enterprises enabling them to reduce their poverty;
+- Learn and evaluate what helps people to move out of poverty faster;
+- To create opportunities for self-employment for the underprivileged;
+- To train rural financially disadvantaged in simple skills and enable them to utilize the available resources and contribute to employment and income generation in rural areas.
 
 Many institutions practice μCredit™|MicroCredit™ and μFinance™|MicroFinance™, or raise funds for μCredit™|MicroCredit™ and μFinance™|MicroFinance™, including the following:
 - Accion International
@@ -199,11 +214,11 @@ The mission of the funding institutions is to help MFIs operate more efficiently
 
 A goal is to ensure the partners are moving their clients out of poverty and to foster good practices for measuring the progress of the individuals' movement across poverty lines. MFIs must show results, yet many do not have the tools to evaluate how well they are fulfilling their mission of reducing poverty, reaching people excluded from financial services, empowering women, or promoting community solidarity. That´s why they should also equip Micro(μ)Finance institutions with tools to measure their clients’ progress out of poverty. Built on the learnings of previous efforts in the Micro(μ)Finance industry they can develop the operational methods in reaching the clients. Innovative financing solutions and strategies to expand the capacity and efficiency of the MFIs provide a direct impact on the lives of the financially disadvantaged and advance the Micro(μ)Finance industry as it moves toward even higher standards in terms of anti-poverty impact and financial performance.
 
-### μCredit™|MicroCredit™ and μFinance™|MicroFinance™ products:
+## μCredit™|MicroCredit™ and μFinance™|MicroFinance™ Products: we will do the math to find competitive percentages and/or pricing.
 ---
 Offering financial services to the homeless, vagrant, the financially disadvantaged, and down-trotted, the financially uneducated and fiscally unwise, people in financial development, for the successes of their households, businesses, neighborhoods... This is an expensive business...
 
-The cost is one of the biggest reasons why traditional banks do not make small loans, the resources required for a 50$ loan are the same as for a 1000$ loan.
+The cost is one of the biggest reasons why traditional banks do not make small loans, the resources, costs, and/or time required for just a 50$ loan are the same resources, costs, and/or time as for a 1000$ loan.
 
 GigFlorida μCredit™|MicroCredit™ and μFinance™|MicroFinance™, also has the personnel and administration costs. Field staff managers must perform household and business surveys before entering a household or business, conduct interviews with potential borrowers, in a lot of individual cases, we have to educate the borrowers in credit discipline, travel to the households and businesses every week to collect interest, and distribute loans and control that the loans are being used for the given purpose.
 
