@@ -1,15 +1,10 @@
-# I have Got To Re-Build Everything here, 
-## My full experiences, in a very full computational history; 
-### Past, Present, and Future ...like right now!!!
----
 # Kurt David Gooch
-is perfecting his GitHub Flavored (GFM) MarkDown 3.? - SuperSkills
-### "Kurt" "K.D." "K. David" "Keys Kurt" "Key West Kurt" "Gooch" "GigFlorida Gooch"
+Found under SysOp, Web Master, Admin, Deamon/Angel, Group, Forum, User, Name, ID (Full Nominclature Array): "K" "Kurt" "Key West Kurt" "Conch Kurt" "Keys Kurt" "Keyz Kurt" "KWest Kurt" "Atlantic Shores Kurt" "Southernmost Kurt" "Center Court Kurt" "CCInnKurt" "KeyzNasty" "KD" "K.D." "K. D." "K David" "K. David" "Kurt David" "KDG" "K.D.G." "K. D. G." "Kurt David Gooch" "GigFlorida" "G" "G Nasty" "Gooch" "Jack Nasty" "Kurt Nasty" "Gooch Nasty" "Southernmost Gooch" "GigFlorida Gooch"
 
 ---
-# I have Got To Re-Build Everything here, 
-## My full experiences, in a very full computational history; 
-### Past, Present, and Future ...like right now!!!
+(I have Got To Re-Build Everything here)
+## My Experience/History; 
+### Past, Present, and Future (...like right now!!!)
 ---
 
 - Just Turned 50 Years Old on 9/25/2021 @ 9:00 am; 
@@ -24,7 +19,8 @@ is perfecting his GitHub Flavored (GFM) MarkDown 3.? - SuperSkills
 
 ---
 ## CEO, CTO, CIO, COO, and VP 
-### Corporations, Businesses, Production, Publications, and Organizations
+### Corporate, Businesses, Organization, 
+### Performance, Production, and Publication
 
 ---
 Island Girl Islamorada, Luxury Yacht for Private Charter; Kurt David Gooch, The Southernmost Consultant; Toxic Triangle; Exocœtidæ; Tidæ; Full Stack Development and Analytic; Flying Fish Production, Stage and Studio; Tobiko Tropicale UI/UX/Graphix; The GigFlorida Networks and Miniservices; Professional Musician Entertainment Industry Magazine; "The Scholarly Road," Touring Journal; The Creative Loafing Gazetteer, Classifieds; 
