@@ -5,30 +5,23 @@
 Journals and magazines are important sources for up-to-date information in all disciplines. With an online periodical collection as large and diverse as the one the Libraries provide, it is often difficult to distinguish among the levels of scholarship represented. It's important to distinguish among the types of journals and magazines that you should use to fulfill the requirements of class assignments.
 In this guide we have divided the criteria for periodical literature into four categories:
 
-- Scholarly - Relating Music News & Analysis, and/or Commentary
-- Professional / Trade - News & Analysis, and/or Commentary
-- Popular & General Interest / Sensational - News & Analysis, and/or Commentary
+- Scholarly Music News & Analysis, and/or Commentary
+
+- Professional / Trade Music News & Analysis, and/or Commentary
+
+- Popular & General Interest / Sensational Music News & Analysis, and/or Commentary
 
 ---
 
 SOME DEFINITIONS:
 Webster's Third International Dictionary defines
 
-- Scholarly:
-  1. concerned with academic study, especially research,
-  1. exhibiting the methods and attitudes of a scholar, and having the manner and appearance of a scholar.
-
-- Professional:
-  1. engaged in one of the learned professions or in an occupation requiring a high level of training and proficiency.
-  1. reflecting the results of education, training, and experience.
-
-- Trade:
-  1. group of persons engaged in a particular occupation, business; 
-  1. group of firms or corporations engaged in a line of work.
-
-- Substantive: having a solid base, being substantial.
-- Popular: fit for, or reflecting the taste and intelligence of, the people at large.
-- Sensational: arousing or intending to arouse strong curiosity, interest or reaction.
+1. Scholarly: concerned with academic study, especially research, exhibiting the methods and attitudes of a scholar, and having the manner and appearance of a scholar.
+1. Professional: engaged in one of the learned professions or in an occupation requiring a high level of training and proficiency; reflecting the results of education, training, and experience.
+1. Trade: group of persons engaged in a particular occupation, business; group of firms or corporations engaged in a line of work.
+1. Substantive: having a solid base, being substantial.
+1. Popular: fit for, or reflecting the taste and intelligence of, the people at large.
+1. Sensational: arousing or intending to arouse strong curiosity, interest or reaction.
 
 Keeping these definitions in mind, and realizing that none of the lines drawn among types of journals can ever be totally clear-cut, please consult the tabs across the top of the page to learn more about each type of journal or magazine.
 
