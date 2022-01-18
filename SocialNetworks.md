@@ -87,16 +87,3 @@ Legal Guidance, intellectual property, last will, to the gig didn’t pay, info 
 Social Network transparent to all others
 
 Print and Digital Ad Space Available for National - Local Businesses
-
----
-
-10 DMA/MSA Specific Targeted Areas
-
-Travel To and From Florida
-Products and Services for That, I’m a/Be a Travel Agent
-
-Staying In and Around Florida
-Products and Services for That, I’m a Travel Agent
-
-Playing In and Around Florida
-Products and Services for That, you’ve got Gig Florida for that
