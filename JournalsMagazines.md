@@ -180,7 +180,7 @@ The main purpose of popular periodicals is to entertain the reader, to sell prod
 
 - The main purpose of sensational magazines seems to be to arouse curiosity, to cater to popular superstitions, and to sell advertising. 
 
-- They often do so with flashy headlines designed to astonish (e.g. Half-man / Half-woman Makes Self Pregnant).
+- They often do so with flashy headlines designed to Shock and Astonish (e.g. Half-man / Half-woman Makes Self Pregnant).
 
 #### EXAMPLES OF SENSATIONAL PERIODICALS:
 - Globe
