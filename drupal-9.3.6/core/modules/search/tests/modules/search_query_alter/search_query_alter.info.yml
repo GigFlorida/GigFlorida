@@ -1,0 +1,10 @@
+name: 'Test Search Query Alter'
+type: module
+description: 'Support module for Search module testing.'
+package: Testing
+# version: VERSION
+
+# Information added by Drupal.org packaging script on 2022-02-16
+version: '9.3.6'
+project: 'drupal'
+datestamp: 1645029535

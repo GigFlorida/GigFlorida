@@ -1,0 +1,10 @@
+name: 'User Test theme'
+type: theme
+base theme: stable
+description: 'Theme for testing the available fields in user twig template'
+# version: VERSION
+
+# Information added by Drupal.org packaging script on 2022-02-16
+version: '9.3.6'
+project: 'drupal'
+datestamp: 1645029535

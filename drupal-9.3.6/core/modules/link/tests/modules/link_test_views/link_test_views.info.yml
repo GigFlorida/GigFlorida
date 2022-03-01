@@ -1,0 +1,14 @@
+name: 'Link test views'
+type: module
+description: 'Provides default views for views link tests.'
+package: Testing
+# version: VERSION
+dependencies:
+  - drupal:node
+  - drupal:views
+  - drupal:link
+
+# Information added by Drupal.org packaging script on 2022-02-16
+version: '9.3.6'
+project: 'drupal'
+datestamp: 1645029535
