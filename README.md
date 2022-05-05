@@ -70,7 +70,7 @@ Here are some weird ideas to ask about:
 
 📇 Address; 90311 Old Highway, Tavernier, Florida  33070; Duval Street, Key West, Florida  33040; 
 
-📱 Phone; (305) 731-5921; (305) 834-2183; (813) 852-KURT (5878); 
+📱 Phone; (305) 731-5921; (813) 852-KURT (5878); 
 
 📧 EMail; GigFlorida@aol.com; GigFlorida@gmail.com; GigFlorida@live.com; GigFlorida@me.com; GigFlorida@yahoo.com; 
 
