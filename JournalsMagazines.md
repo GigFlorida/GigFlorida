@@ -36,7 +36,7 @@ Keeping these definitions in mind, and realizing that none of the lines drawn am
 
 ---
 
-- Scholarly, academic, peer-reviewed, juried, or refereed — These are all synonyms for the same type of journal, one that presents and preserves a record of scholarship for an academic or research-oriented audience. The language of scholarly journals is that of the discipline covered. It assumes some academic background on the part of the reader.
+- Scholarly, Academic, Peer-Reviewed, Juried, and/or Refereed — These are all synonyms for the same type of journal, one that presents and preserves a record of scholarship for an academic or research-oriented audience. The language of scholarly journals is that of the discipline covered. It assumes some academic background on the part of the reader.
 
 - Many academic journals, though by no means all, are published by scholarly societies or discipline-specific professional organizations. As part of the publication process, scholarly articles are reviewed by committees of other notable scholars. Such reviewers are considered to be the writer's peers; hence, the term peer-reviewed journal. Usually, a committee or jury of scholars does the reviewing; hence, the terms juried journal or refereed journal.
 
