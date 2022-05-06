@@ -1,13 +1,15 @@
 # Kurt David Gooch:
-
-Found under: "SysOp" "Web Master" "Admin" "Network" "Deamon|Angel" "Group" "Forum" "Hacker" "User" "Name" "ID" (Full Nominclature Array): 
-
-### "K" "Kurt" "Key West Kurt" "Conch Kurt" "Keys Kurt" "Keyz Kurt" "KWest Kurt" "AtlanticShores Kurt" "Southernmost Kurt" "Southernmost Hacker" "Cosmic Kurt" "ToxicTriangle Kurt" "Toxic Kurt" "Baby Bear" "DiscoKurt" "CenterCourt Kurt" "CCInnKurt" "KeyzNasty" "KD" "K.D." "K. D." "K David" "K. David" "Kurt David" "KDG" "K.D.G." "K. D. G." "Kurt David Gooch" "GigFlorida" "G" "G Nasty" "Gooch" "Jack Nasty" "Kurt Nasty" "Gooch Nasty" "Southernmost Gooch" "GigFlorida Gooch" 
-
 ---
-(I have Got To Re-Build Everything here)
-## My Experience/History; 
-### Past, Present, and Future (...like right now!!!)
+## My Experience My History; 
+### Past
+Studio B Video Editing, Amiga 1000 2000, Sony A/B Roll
+IBM PC Clone Computer Manufacturing Company
+
+
+Present Development
+
+Future
+GigFlorida Networks (...like right now!!!)
 ---
 
 - Just Turned 50 Years Old on 9/25/2021 @ 9:00 am; 
@@ -30,9 +32,15 @@ Island Girl Islamorada - Luxury Yacht for Private Charter; Network Specific, Ful
 
 Kurt David Gooch - Performiing Artist, Musician, Synthesis
 
-The Southernmost Consultant; Old Town; Toxic Triangle; Exocœtidæ; Tidæ; Full Stack Development and Analytic; 
+The Southernmost Consultant; Old Town; Toxic Triangle; Exocœtidæ; Tidæ; Full Stack Development and Analytics; 
 
-Flying Fish Production, Stage and Studio; Tobiko Tropicale UI/UX/Graphix; The GigFlorida Networks and Miniservices; Professional Musician Entertainment Industry Magazine; "The Scholarly Road," Touring Journal; The Creative Loafing Gazetteer, Classifieds; 
+Flying Fish Production, Stage and Studio; 
+
+Tobiko Tropicale UI/UX/Graphix; 
+
+The GigFlorida Networks and Miniservices; 
+
+Professional Musician Entertainment Industry Magazine; "The Scholarly Road," Touring Journal; The Creative Loafing Gazetteer, Classifieds; 
 
 ---
 ### **GigFlorida/GigFlorida** Welcome Page: 
@@ -47,7 +55,7 @@ Here are some weird ideas to ask about:
 🔭 I’m currently working on: ...many many things!!!
 - GigFlorida, Florida Musician Social Network, and Geo-Loc Map for Touring Performing Artists
 - Knowledge Database Library, 😓 Working with AI/ML to build Dynamic Taxonomies and Ontologies 
-- The sudden nature of: Flutter App seems to be being written before its first planning phase meeting
+- The sudden nature of the Flutter App seems to be being written before its first planning phase meeting
 
 ---
 🌱 I’m currently learning: 
@@ -88,3 +96,8 @@ Here are some weird ideas to ask about:
 - "Florida Man," ...does crazy stuff!!! ...just sayin'
 
 ---
+# Kurt David Gooch:
+
+Found under: "SysOp" "Web Master" "Admin" "Network" "Deamon|Angel" "Group" "Forum" "Hacker" "User" "Name" "ID" (Full Nominclature Array): 
+
+### "K" "Kurt" "Key West Kurt" "Conch Kurt" "Keys Kurt" "Keyz Kurt" "KWest Kurt" "AtlanticShores Kurt" "Southernmost Kurt" "Southernmost Hacker" "Cosmic Kurt" "ToxicTriangle Kurt" "Toxic Kurt" "Baby Bear" "DiscoKurt" "CenterCourt Kurt" "CCInnKurt" "KeyzNasty" "KD" "K.D." "K. D." "K David" "K. David" "Kurt David" "KDG" "K.D.G." "K. D. G." "Kurt David Gooch" "GigFlorida" "G" "G Nasty" "Gooch" "Jack Nasty" "Kurt Nasty" "Gooch Nasty" "Southernmost Gooch" "GigFlorida Gooch" 
