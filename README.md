@@ -1,17 +1,21 @@
-# Kurt David Gooch:
+# Kurt David Gooch 
 ---
-## My Experience My History; 
+### My Experience My History 
+---
 ### Past
-Studio B Video Editing, Amiga 1000 2000, Sony A/B Roll
-IBM PC Clone Computer Manufacturing Company
-
-
-Present Development
-
-Future
-GigFlorida Networks (...like right now!!!)
+- Studio B Video Editing, Amiga 1000 2000, Sony A/B Roll
+- IBM PC Clone Computer Manufacturing Company
+- Keyboard Player 7 nights a week, The Bull & Whistle, Key West, Florida
+- Conch.Net & KWest.Net Key West, Florida Internet Service Provider
+- Res-O-vation Guesthouse Software, Hotel/Motel software, restarant Software
 ---
-
+### Present 
+- In Some Serious Development
+---
+### Future
+- GigFlorida Networks (...like right now!!!)
+---
+### Stuffs and More Stuffs
 - Just Turned 50 Years Old on 9/25/2021 @ 9:00 am; 
 - Florida Statewide 🎭Performing Artist, Musician on 🎹Keys/Synths; 
 - Old School SysOp, Systems Integration Engineering; 
@@ -96,8 +100,6 @@ Here are some weird ideas to ask about:
 - "Florida Man," ...does crazy stuff!!! ...just sayin'
 
 ---
-# Kurt David Gooch:
-
-Found under: "SysOp" "Web Master" "Admin" "Network" "Deamon|Angel" "Group" "Forum" "Hacker" "User" "Name" "ID" (Full Nominclature Array): 
-
+# Find: Kurt David Gooch
+- Found under "SysOp" "Web Master" "Admin" "Network" "Deamon|Angel" "Group" "Forum" "Hacker" "User" "Name" "ID"
 ### "K" "Kurt" "Key West Kurt" "Conch Kurt" "Keys Kurt" "Keyz Kurt" "KWest Kurt" "AtlanticShores Kurt" "Southernmost Kurt" "Southernmost Hacker" "Cosmic Kurt" "ToxicTriangle Kurt" "Toxic Kurt" "Baby Bear" "DiscoKurt" "CenterCourt Kurt" "CCInnKurt" "KeyzNasty" "KD" "K.D." "K. D." "K David" "K. David" "Kurt David" "KDG" "K.D.G." "K. D. G." "Kurt David Gooch" "GigFlorida" "G" "G Nasty" "Gooch" "Jack Nasty" "Kurt Nasty" "Gooch Nasty" "Southernmost Gooch" "GigFlorida Gooch" 
