@@ -80,7 +80,7 @@ Here are some weird ideas to ask about:
 ---
 📫 How to reach me: 
 
-📇 Address; 90311 Old Highway, Tavernier, Florida  33070; Duval Street, Key West, Florida  33040; 
+📇 Address; 129 Sandy Avenue, Town 'N' Country, Florida  33615; Duval Street, Key West, Florida  33040; 
 
 📱 Phone; (305) 731-5921; (813) 852-KURT (5878); 
 
