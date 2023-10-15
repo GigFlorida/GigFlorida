@@ -1,50 +1,55 @@
+# Gig Florida Limited Liability Company
 # Kurt David Gooch 
 ---
 ### My Experience My History 
 ---
 ### Past
-- Studio B Video Editing, Amiga 1000 2000, Sony A/B Roll
-- IBM PC Clone Computer Manufacturing Company
+- Studio B, Tampa Bay, Video Editing, Amiga 1000 2000, Sony A/B Roll
+- ABC Computers, Downtown Clearwater, IBM PC Clone Computer Manufacturing Company
 - Keyboard Player 7 nights a week, The Bull & Whistle, Key West, Florida
-- Conch.Net & KWest.Net Key West, Florida Internet Service Provider
-- Res-O-vation Guesthouse Software, Hotel/Motel software, restarant Software
+- Conch.Net & KWest.Net Key West, Florida Keys Internet Service Providers
+- Res-O-vation GuestHouse Software, Hotel/Motel software, Restarant Software
 ---
 ### Present 
 - In Some Serious Development
 ---
 ### Future
-- GigFlorida Networks (...like right now!!!)
+- Gig Florida Limited Liability Company (...like right now!!!)
 ---
 ### Stuffs and More Stuffs
-- Just Turned 51 Years Old on 9/25/2022 @ 9:00 am; 
-- Florida Statewide 🎭Performing Artist, Musician on 🎹Keys/Synths; 
-- Old School SysOp, Systems Integration Engineering; 
+- Just Turned 52 Years Old on 9/25/2023 @ 9:00 am; 
+- Professional 🎭Performing Artist, Musician on 🎹Keys (Piano/Organ/Synth); 
+- Old School SysOp (SysAdmin), Systems Integration Engineering; 
 - Streaming Data | Event-Based Automation Designer in Pub/Sub Kafka; 
-- AI/ML of Computer Assisted Operations; 
-- 👨🏽‍💻Full Stack Developer for all the Juicy Eye Candy; 
-- 🏦FinTech, Financial Technology; 
+- AI/ML of Computer Assisted Automation Operations; 
+- 👨🏽‍💻Full Stack Developer for all the, "Juicy Eye Candy"; 
+- 🏦FinTech, Financial Technology, Banking Software; 
 - 🧑🏽‍💻OSINT Security Hardening and Penetration Testing; 
 - Version Control in Volumes | "Crazy Code of Chaos" Git Custodian
 
 ---
-## CEO, CTO, CIO, COO, and VP 
-### Corporate, Businesses, 
-### Organization; Performance, Production, and Publication of Action
+## CEO, CFO, CTO, CIO, COO, and VP 
+### Corporate Structure, Businesses, 
+### Organization; Protection, Performance, Production, and Publication of Action
 
 ---
-Island Girl Islamorada - Luxury Yacht for Private Charter; Network Specific, Full Spectrum, High Competitive Marketing Algorhythms
+Island Girl Islamorada - Luxury Yacht for Private Charter; Sub-Network Specific, Full Spectrum, High Competitive Marketing Algorhythms
 
-Kurt David Gooch - Performiing Artist, Musician, Synthesis
+Kurt David Gooch - Performing Artist, Musician, Synthesis
 
-The Southernmost Consultant; Old Town; Toxic Triangle; Exocœtidæ; Tidæ; Full Stack Development and Analytics; 
+The Southernmost Consultant - Old Town; Toxic Triangle; 
 
-Flying Fish Production, Stage and Studio; 
+Exocœtidæ Analytica - Full Stack Development and Analytics; 
+Flying Fish Production - Stage and Studio; 
+Tobiko Tropicale - Frontend Development UI/UX/Graphix; 
 
-Tobiko Tropicale UI/UX/Graphix; 
+The Gig Florida Limited Liability Company;
+Networks and Miniservices; 
 
-The GigFlorida Networks and Miniservices; 
-
-Professional Musician Entertainment Industry Magazine; "The Scholarly Road," Touring Journal; The Creative Loafing Gazetteer, Classifieds; 
+Professional Touring Musician Entertainment Industry Magazine;
+3 in 1 
+"The Scholarly Road" Touring Journal; 
+The Gig Florida Gazetteer, Classifieds; 
 
 ---
 ### **GigFlorida/GigFlorida** Welcome Page: 
